@@ -1,3 +1,7 @@
+{{gregcolongo@yahoo.fr}}
+
+{{https://share.vidyard.com/watch/wB3LNPBXLhtmhGCcGz7Zq2?}}
+
 # SPEED DATING #
 
 ## Challenge description
